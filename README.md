@@ -1,0 +1,2 @@
+# Bitcoin-Royal-BTCR-
+Bitcoin Royal (BTCR): As promised Hashing-b Blockchain fulfilled its word offering a gift of thanks and crowning to Mr. Nakamoto Satoshi for the wonderful invention of cryptocurrency. and Bitcoin (BTC), the brand new coin Bitcoin Royal (BTCR) is the continuation of conventional Bitcoin with some adjustment in order to satisfy the public, BTCR has no block halving so no reduction in rewards, all`in on the cruse control, BTC and BTCR has the same code of honor !!!
